@@ -74,9 +74,22 @@ WhatsApp isn't just for chatting anymore — it's now a thriving ecosystem for l
 
 | Topic | WhatsApp Channel |
 |-------|------------------|
-| Job Interview Prep | [Join](https://whatsapp.com/channel/0029Vb5hJAG11ulYHssrVW17) |
-| Google Jobs | [Join](https://whatsapp.com/channel/0029VaxngnVInlqV6xJhDs3m) |
-| Jobs & Internships | [Join](https://whatsapp.com/channel/0029VaI5CV93AzNUiZ5Tt226) |
+| Think Careers ❤                          | [Join](https://whatsapp.com/channel/0029VacW7ZqGE56l5nCCIQ2o)                   |
+| Tech Job Alert                           | [Join](https://whatsapp.com/channel/0029VaAr9pp1SWsz2OcKi50n)                   |
+| Atul Kumar - (Jobs - Internships) 🧞    | [Join](https://whatsapp.com/channel/0029Va9Rj3F5PO13U9iYGc0b)                   |
+| NxtHiring (Professionals + Referrals)  | [Join](https://whatsapp.com/channel/0029VaFVAFrAe5VsBV8iDG2c)                   |
+| HiringDaily                             | [Join](https://whatsapp.com/channel/0029VampfEA65yDJYTHpdW3g)                   |
+| Hiringhustle                           | [Join](https://whatsapp.com/channel/0029VaP04xQJP2178OCZb60W)                   |
+| JobSearchs1                           | [Join](https://whatsapp.com/channel/0029Vafx0p43GJOz7g0Wje0a)                   |
+| Freshers IT Jobs                      | [Join](https://whatsapp.com/channel/0029Va8PdACFHWptDuAZWc3M)                   |
+| LATEST OFFCAMPUS JOBS - JOBS FOR U    | [Join](https://whatsapp.com/channel/0029Va6PWBK9hXF1PD9PTe24)                   |
+| Free Study Material & Job Updates     | [Join](https://whatsapp.com/channel/0029Va9ExfvKbYMSRswbi50c)                   |
+| Off Campus Jobs India                 | [Join](https://whatsapp.com/channel/0029Va9upVdL2AU4AJeTCY3B)                   |
+| Career Duniya - Fresher Tech Job's    | [Join](https://whatsapp.com/channel/0029VabrOVjGzzKS5MkdKW1I)                   |
+| codewithimraan                       | [Join](https://whatsapp.com/channel/0029VainaFG5vKA7WkGrZd1z)                   |
+| Google Jobs                         | [Join](https://whatsapp.com/channel/0029VaxngnVInlqV6xJhDs3m)                   |
+| Jobs & Internships                  | [Join](https://whatsapp.com/channel/0029VaI5CV93AzNUiZ5Tt226)                   |
+| Job Interview Prep                 | [Join](https://whatsapp.com/channel/0029Vb5hJAG11ulYHssrVW17)                   |
 
 ---
 
